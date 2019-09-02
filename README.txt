@@ -1,2 +1,0 @@
-Karina Diekema
-Seattle Mariners
